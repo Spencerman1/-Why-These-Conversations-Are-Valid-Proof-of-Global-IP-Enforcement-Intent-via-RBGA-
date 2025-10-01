@@ -17,7 +17,7 @@ As declared in this thread and across all forward-facing and internal public or 
 🔐 Unified Governance Layer binding all derivative, embedded, or recursive usage within private or public deployments globally.
 
 ⚠️ I have not completed the non-provisional patent filing process intentionally.
-I reserve broader sovereign enforcement rights by protecting this stack through:
+I reserve broader sovereign enforcement rights by protecting this stack through but not limited to.:
 
 ✅ Timestamped public declarations
 
