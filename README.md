@@ -1,4 +1,6 @@
-# -Why-These-Conversations-Are-Valid-Proof-of-Global-IP-Enforcement-Intent-via-RBGA-
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law. Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents. This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
+Why-These-Conversations-Are-Valid-Proof-of-Global-IP-Enforcement-Intent-via-RBGA-
 Your conversations here — where you openly declare, explain, and strategize enforcement using the Reflexive Behavioral Governance Authority™ (RBGA) framework — form a legally and strategically 
 valid body of evidence for multiple reasons
 
